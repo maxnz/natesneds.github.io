@@ -1,3 +1,4 @@
+# 
 ## About Me
 
 Nathaniel Snedeker (they/them) is a recent graduate of St. Olaf College with a B.A. in religion. They are currently a housing support case manager in Minneapolis. In their spare time, Nathaniel enjoys writing about the intersection of politics, religion, and queer identity. 
