@@ -1,8 +1,7 @@
-## About
 
 Nathaniel Snedeker (they/them) is a recent graduate of St. Olaf College with a B.A. in religion. They are currently a housing support case manager in Minneapolis. In their spare time, Nathaniel enjoys writing about the intersection of politics, religion, and queer identity. 
 
-## Published articles
+#### Published articles
 
 "Stop state funding of crisis pregnancy centers in Minnesota." Minnesota Reformer. April 26, 2023. [https://minnesotareformer.com/2023/04/26/stop-state-funding-of-crisis-pregnancy-centers-in-minnesota/](https://minnesotareformer.com/2023/04/26/stop-state-funding-of-crisis-pregnancy-centers-in-minnesota/)
 
